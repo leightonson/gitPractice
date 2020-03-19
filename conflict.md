@@ -5,3 +5,7 @@
 # last conflict     
 # 
 # conflict
+
+you're the only one that lights me up you're like a miracle
+But how can I protect you when I'm too scared of my self?
+what if I'm a liability?
