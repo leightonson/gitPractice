@@ -2,6 +2,6 @@
 충돌 해결법은 무엇인가
 
 충돌요인
-# last conflict
+# last conflict     
 # 
 # conflict
