@@ -5,3 +5,8 @@
 # last conflict     
 # 
 # conflict
+
+
+The only constant that keeps making sense 
+So why do I keep getting lost? I can't find myself anymore
+Oh yeah I wanna be the place that you can rest your head 
